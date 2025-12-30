@@ -15,3 +15,4 @@ Het kostte me 45 minuten om naar kantoor te gaan.
 Met een elektrische fiets duurt het maar 30 minuten – en het voelt veel minder zwaar.
 Inmiddels heb ik al meer dan 7000 kilometer gefietst op mijn elektrische fiets, in iets meer dan een jaar. 
 Dat is best een mijlpaal, vind ik!
+
