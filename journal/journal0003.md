@@ -1,6 +1,6 @@
 Mijn reis om Nederlands te leren
 
-Ik lees AI-boeken tijdelijk voor de toekomst. 
+Ik lees AI-boeken momenteel voor de toekomst. 
 Bovendien lees ik een rapport van Peter Wennink in het Nederlands. 
 Dat is uitdagend voor mij, maar een goede oefening. 
 Ik leer nieuwe woorden en zinsconstructies. 
